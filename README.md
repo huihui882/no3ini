@@ -1,2 +1,2 @@
-# no3ini.github.io
+# no3ini
 yuhuu
